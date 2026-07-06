@@ -1,4 +1,4 @@
-# 
+# VIP Deribit bot التداول وظائف إضافية for Mac OS | نهائي Deribit bot التداول وظائف إضافية for PC Windows. Featuring مجموعات السيولة DEX and تحليل الزخم — optimized for maximum performance.
 
 
 
